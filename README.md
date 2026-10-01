@@ -1,0 +1,2 @@
+# premium-majolica-tile-001-majolica-glaze-recipe-over-g
+Every heritage-tile-making professionals needs this — most just don't know it yet.  Mobile-optimized for Notion iOS and Android — works everywhere you work. Pre-built databases, views, and formula fields — ready to duplicate and use.  ## What's Included  - Majolica Glaze Recipe &amp; Over-Glaze Painting Guide — fully configured and ready to use - Pre-b
